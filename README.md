@@ -16,7 +16,7 @@
 
 - 📫 How to reach me **jagadeeswaranmurapaka@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1ZDdvrFkWOJG11sJhQQ7tl0EKXjWt5wgU/view?usp=sharing](https://drive.google.com/file/d/1ZDdvrFkWOJG11sJhQQ7tl0EKXjWt5wgU/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1ZDdvrFkWOJG11sJhQQ7tl0EKXjWt5wgU/view?usp=sharing](https://drive.google.com/file/d/1YtsToQ9uC7x6yNrUUyN1Kjh4CMZPvWr7/view?usp=sharing)
 
 - ⚡ Fun fact **I think i am funny**
 
